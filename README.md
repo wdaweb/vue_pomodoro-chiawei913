@@ -24,3 +24,4 @@
 
 ## 作業連結
 - [精神時光屋個人檔案](https://challenge.thef2e.com/user/4131)
+設計稿:採用炎炎的設計稿
